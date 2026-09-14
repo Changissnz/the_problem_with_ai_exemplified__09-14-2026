@@ -18,7 +18,7 @@ And it's not to support Palestine or China or Taiwan either. The A.I. Industry: 
 
 Mostly everyone that has kept up with the A.I. developments would have concluded this government-backed industry is strongly suspect of being heavily subsidized 
 and state-sponsored because... it actually is. If a person is not an investor, and the financial gains that come their way during this A.I. wave are not 
-extravagant, the state-sponsored aspect is one of the best answers. 
+extravagant, the state-sponsored aspect is quite justifiable. Utility and such. 
 
 The public announcements for these A.I. corporations claim they are raking in a lot of capital. These A.I. corporations have also made it very difficult 
 for competitors, not as heavily backed as them, to compete with them. And also, the industry hires the "top talent": the "top talent" usually comes from 
