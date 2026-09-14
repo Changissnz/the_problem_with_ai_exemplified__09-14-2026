@@ -107,6 +107,12 @@ want to compete head-on in the A.I. race, for their pragmatics. The question is,
 of the work be looked back on as delusional?** And the answer is "no". The United States excels at scale. It might not be at the peak of quality or the most applicable, 
 but maximizing on A.I. developments, while the time is still ripe, should mostly back up the United States for future problems. 
 
+**The A.I. IPOs are icy daggers to the back of mad bulls and gamblers.** That is my hypothesis. It could be worse, in terms of appearances. It could go like a 
+sledgehammer being dropped on a skull (yikes, how barbaric). During these years of the A.I. boom, anyone that has kept up with the daily personalized newsfeed on 
+"A.I. A.I" will have probably discovered more than just one two jacka**** with their phony marketing, insincere academics, pseudo-profound "prophets of truth." 
+A lot of that activity will come down with the A.I. IPOs. The descent after the climax should normalize these changes spurred by this so-called "Fourth Industrial 
+Revolution." 
+
 I have some personal ideas for A.I. products, but I will keep them mostly to myself because I am not in business. To clarify, many corporatists, American, Chinese, 
 whatever, do not favor me to be corporatistically successful. And I respond to them, "f* you too". Corporatists these days of A.I...Almost makes me want to sit out 
 from attending the NFL/NBA games that I...actually cannot afford to pay to watch in person with "the girl of my dreams, Mary Jane Watson."
