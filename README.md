@@ -109,7 +109,7 @@ but maximizing on A.I. developments, while the time is still ripe, should mostly
 
 **The A.I. IPOs are icy daggers to the back of mad bulls and gamblers.** That is my hypothesis. It could be worse, in terms of appearances. It could go like a 
 sledgehammer being dropped on a skull (yikes, how barbaric). During these years of the A.I. boom, anyone that has kept up with the daily personalized newsfeed on 
-"A.I. A.I" will have probably discovered more than just one two jacka**** with their phony marketing, insincere academics, pseudo-profound "prophets of truth." 
+"A.I. A.I" will have probably discovered more than just one or two jacka**** with their phony marketing, insincere academics, pseudo-profound "prophets of truth." 
 A lot of that activity will come down with the A.I. IPOs. The descent after the climax should normalize these changes spurred by this so-called "Fourth Industrial 
 Revolution." 
 
