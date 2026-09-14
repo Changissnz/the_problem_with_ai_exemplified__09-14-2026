@@ -31,7 +31,7 @@ States and China. This headline about sums up what the major competition in the 
 There is good that comes out of corporate thievery, but the heavy price in the long-term demands "market corrections", in euphemistic terms. Without the 
 US Federal Government and other governments around the world, such as the Chinese Communist Party, today's A.I. corporations would be restrained back, 
 prohibited from training on people's personal information. Despite how leadership is trying to spin things, these corporations have a disproportionately 
-larger degree of executive power in delivering dynamic A.I. systems. 
+larger degree of executive power in delivering dynamic A.I. systems than even official government staff. 
 
 And, who can forget, the culture, icon, and counter-cultural sensationalism: 
 
