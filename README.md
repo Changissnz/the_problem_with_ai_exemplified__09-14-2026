@@ -55,7 +55,7 @@ And now, the Supreme Leaders of A.I. want things to slow down (things might spin
 
 **Anthropic, OpenAI, and the other new A.I. corporations are trying to pull an Amazon-to-Walmart on Google and Microsoft.** The strategy requires casualties, 
 with little guarantee for Anthropic and OpenAI to be the new stars of the corporate show. I think the hesitation might be these new giants' breaktime discussion 
-on how to proceed with strategy. It's clearly not a match-up of perfect information for any able person to analyze. And that was why I was stating in this 
+on how to proceed with strategy. It's clearly not a match-up of perfect information for any able spectator to analyze. And that was why I was stating in this 
 [article](https://github.com/Changissnz/my_thoughts_on_AI__09-09-2026):  
 "But first and last, out with the Anthropic and OpenAI IPO. And then disappeared from civic life and gone to the history books."  
 Geesh... if it's too much to handle, the power and authority and capital control, then maybe just have the organizations put up for public sale (IPO, initial 
