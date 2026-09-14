@@ -61,8 +61,8 @@ on how to proceed with strategy. It's clearly not a match-up of perfect informat
 Geesh... if it's too much to handle, the power and authority and capital control, then maybe just have the organizations put up for public sale (IPO, initial 
 public offering) and then liquidated? Maybe that is the best course of action?? 
 
-The central principle behind American and Chinese corporate A.I. strategy is the liberality granted to these concentrated organizations. These concentrated 
-organizations, A.I. corporations in other words, are to do the bidding of powerful nation-states. To deliver measurable gains in computing intelligence, 
+The central principle behind American and Chinese corporate A.I. strategy is the liberality granted to these concentrated organizations. **These concentrated 
+organizations, A.I. corporations in other words, are to do the bidding of powerful nation-states**. To deliver measurable gains in computing intelligence, 
 these organizations have struck deals on semiconductor chips, a critical resource for example. It's not the craziest to assume that most of the material 
 net worth of Anthropic and OpenAI, for example, rests on exclusive discount deals with Nvidia, TSMC, and maybe with Intel Corporation's plants over in Asia. 
 And the rest of that material net worth is in freely using intellectual property and data from surveillance, proprietary research, and so on. Any process can 
