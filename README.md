@@ -101,7 +101,7 @@ the vast exposure to other peoples' insights and work, and then reinforcement, r
 defiance is what I believe is the essence of the A.I. hyper-accelerated development concerns. **Premonitions on some kind of anti-corporatistic revolt, ironically 
 piggybacked on top of corporatized products, namely proprietary LLM systems and the corporatist workers of those enterprises, include the chief executives.** 
 
-**There is just cause to slow down with the A.I. hype.** Germany and Japan, for example, are actively not trying to compete with the United States and China in 
+**There is just cause to slow down with the A.I. hype.** Germany and Japan, for example, are actively trying not to compete with the United States and China in 
 all domains of A.I. development. Germany might be having problems with its neighbors now, since it is a principal of the EU. Japan, on the other hand, does not 
 want to compete head-on in the A.I. race, for their pragmatics. The question is, **if scale will not do for the success of A.I., will the efforts be lost and most 
 of the work be looked back on as delusional?** And the answer is "no". The United States excels at scale. It might not be at the peak of quality or the most applicable, 
