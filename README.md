@@ -77,7 +77,7 @@ deceptive leaders, as whatever. The machine can do the work, my friend.
 
 The university/college setting is quite competitive, even when peers try to be egalitarian. These settings, if not bureaucracy, educate future minds for 
 bureaucracy, in large part. I personally was stuck in those kinds of situations. Impossible problems, they seemed to me, for me to solve. Not enough time 
-to make good friends. Companionship out the door. Everyone is insane or something. There is always someone better at you at some thing. Too many thinking 
+to make good friends. Companionship out the door. Everyone is insane or something. There is always someone better than me at some thing. Too many thinking 
 heads in the same space, intellectual freedom is stressed, strained, and worn down to having to be politically correct. **This A.I. trend, to me, is cool 
 for being a wrecking ball to consortiums of nonsense, spite, and one-upmanship in the image of omnipotent knowledge.** The materialism of the industry 
 might be disgusting, but in the jungle of academia and get-togethers with a lot of animal traps, poisonous fruits, and psychos, the streamlined power of A.I. 
