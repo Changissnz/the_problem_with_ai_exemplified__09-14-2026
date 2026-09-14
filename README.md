@@ -119,7 +119,7 @@ and the humans grow to depend on the product.**
 years, as the party moved away from Clinton into the underground arms of people such as Bernie Sanders, AOC, and more recently, Mamdani and El-Sayed, there actually 
 are some major problems. Sanders' whole universal "we need to support everyone and screw the billionaires" slogan is not that effective. From my standpoint, it's like 
 using a shotgun loaded with birdshot to aim for long-range. It's like "no brother. If you are aiming for something far and out there, do not just stick with a shotgun 
-and load it up with birdshot. That's mainly useful for birds and drones." With Bernie, the moralism is "restraint of capitalist ambition and equal distribution." With AOC 
+loaded with birdshot. That's mainly useful for birds and drones." With Bernie, the moralism is "restraint of capitalist ambition and equal distribution." With AOC 
 and the newcomers to the Democratic Party, there are calls for more cultural intersection. **There are only so many hours in the day.** Industry concerns around A.I., 
 in some demographics, revolve around control. In economic policies, it turns into Faustian bargains the more some people feel the need to want more out of these arrangements. 
 So if it is not a bad corporate arrangement that is truthfully heavily subsidized by the state, then it turns into levelling everything out while some people make their 
