@@ -109,7 +109,7 @@ but maximizing on A.I. developments, while the time is still ripe, should mostly
 
 I have some personal ideas for A.I. products, but I will keep them mostly to myself because I am not in business. To clarify, many corporatists, American, Chinese, 
 whatever, do not favor me to be corporatistically successful. And I respond to them, "f* you too". Corporatists these days of A.I...Almost makes me want to sit out 
-from attending the NFL/NBA games with "the girl of my dreams, Mary Jane Watson" that I...actually cannot afford to pay to watch in person.  
+from attending the NFL/NBA games that I...actually cannot afford to pay to watch in person with "the girl of my dreams, Mary Jane Watson."
 
 The A.I. game is different than simple innovation. **It is about scale and adoption. The A.I. marketing strategy demands human agents put themselves in the "loop": 
 the humans use the A.I. product, the product collects information on them, the A.I. server uses that information to train the algorithm, the weights get recalibrated, 
