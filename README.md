@@ -84,7 +84,7 @@ might be disgusting, but in the jungle of academia and get-togethers with a lot 
 clears the field of hazards that have been building up from lack of maintenance, all the while creating new hazards to think on. A renewal. A revisitation 
 of problems ancient and old destroyed in their form of post-modernism and being resurrected for this machine age. 
 
-**The false equivocation of A.I. corporations' mass destruction of books with outright book-burning.** I don't want to immediately think corporations 
+**The false equivocation of A.I. corporations' mass destruction of books with outright anti-intellectualism.** I don't want to immediately think corporations 
 copying content from physical books into cyberspace is the obvious route to authoritarianism. Maybe it's best to give these organizations the benefit of 
 a doubt, that they are modernizing the world of fluff. They might actually be memorializing the intellectual endeavors and struggles put into product of 
 book, many of these books that are no longer marketed, decades or even a century old, and they would just sit there in their final days, like an elder on 
