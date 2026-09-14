@@ -70,7 +70,7 @@ be automated, in theory, so too must any relevant process done by human beings b
 
 **The American bureaucracy was smothering people before the A.I. boom.** This is a truth I've come to accept, despite how questionable it may seem. These 
 LLM capabilities rival the work of white-collared types, many of them women since the third feminism wave in the Western world. The analyst. The cute 
-secretary. Sweet and gorgeous girls fresh out of college, and then comfortably stuck into cubicle work for the unofficial Duke of Anglia or Germania or 
+secretary. "Sweet and gorgeous girls" fresh out of college, and then comfortably stuck into cubicle work for the unofficial Duke of Anglia or Germania or 
 Mexico (America so diverse). Guess what? A lot of these people really are no longer needed. A.I. capabilities have learned from these techniques of human 
 thinking and organizing. They can get the work done without adding in the irrational elements from some people bound to be trouble-makers as victims, as 
 deceptive leaders, as whatever. The machine can do the work, my friend. 
