@@ -123,7 +123,7 @@ loaded with birdshot. That's mainly useful for birds and drones." With Bernie, t
 and the newcomers to the Democratic Party, there are calls for more cultural intersection. **There are only so many hours in the day.** Industry concerns around A.I., 
 in some demographics, revolve around control. In economic policies, it turns into Faustian bargains the more some people feel the need to want more out of these arrangements. 
 So if it is not a bad corporate arrangement that is truthfully heavily subsidized by the state, then it turns into levelling everything out while some people make their 
-escape into paradise or something. Republican. Democrat. Icky icky with industry. It's as if to know some of these matters is to be able to think and act less. 
+escape into paradise or something. Republican. Democrat. Icky icky with industry. It's as if to know some of these matters is to have to think and act less. 
 
 **A.I. is not entirely a product, but the endeavors and development of it are today's telltale signs of high civilization.** It really is. Unless some people are proposing 
 the developed world go back to agricultural farming, which is not a bad occupation but definitely not for everyone. And... very labor-intensive. **In antagonistic contexts, 
