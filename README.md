@@ -86,9 +86,9 @@ of problems ancient and old destroyed in their form of post-modernism and being 
 
 **The false equivocation of A.I. corporations' mass destruction of books with outright anti-intellectualism.** I don't want to immediately think corporations 
 copying content from physical books into cyberspace is the obvious route to authoritarianism. Maybe it's best to give these organizations the benefit of 
-a doubt, that they are modernizing the world of fluff. They might actually be memorializing the intellectual endeavors and struggles put into product of 
-book, many of these books that are no longer marketed, decades or even a century old, and they would just sit there in their final days, like an elder on 
-their deathbed. 
+a doubt, that they are modernizing the world by recalling and organizing all the fluff in the past. They might actually be memorializing the intellectual 
+endeavors and struggles put into product of book. Many of these books are no longer marketed, decades or even a century old, and they would just sit there 
+in their final days, like an elder on their deathbed. 
 ![image info](Screenshot%202026-09-14%20133214.png)
 
 There is just one big technical problem I find with A.I. corporations, in general. **They depend on scale.** And I personally don't think the datasets they 
