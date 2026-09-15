@@ -99,7 +99,7 @@ a fact that many individuals use as a qualm against the inherent intelligence of
 (loop engineering, what Boris Cherny announced) that have been programmed into them can technically help LLM systems achieve an originality of their own, through 
 the vast exposure to other peoples' insights and work, and then reinforcement, refinement, and complexity that might defy the makers' wishes and desires. And this 
 defiance is what I believe is the essence of the A.I. hyper-accelerated development concerns. **Premonitions on some kind of anti-corporatistic revolt, ironically 
-piggybacked on top of corporatized products, namely proprietary LLM systems and the corporatist workers of those enterprises, include the chief executives.** 
+piggybacked on top of corporatized products, namely proprietary LLM systems and the corporatist workers of those enterprises, including the chief executives.** 
 
 **There is just cause to slow down with the A.I. hype.** Germany and Japan, for example, are actively trying not to compete with the United States and China in 
 all domains of A.I. development. Germany might be having problems with its neighbors now, since it is a principal of the EU. Japan, on the other hand, does not 
